@@ -1,0 +1,1 @@
+1 lb. rigatoni 2 Tbsp. extra virgin olive oil 1/2 large yellow onion, diced 2 cloves garlic, minced salt and pepper to taste 1/2 tsp. red pepper flakes 1 lb. ground hot Italian sausage 1/4 cup red wine 2 Tbsp. balsamic vinegar 1 28-oz. can crushed tomatoes 2 cups fresh arugula, chopped
